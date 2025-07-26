@@ -1,3 +1,0 @@
- msncknklxmais<lscx 
- ckdhwaışdhwnlDİ
- CKDSNAŞLNKLİ

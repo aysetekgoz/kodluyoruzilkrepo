@@ -4,6 +4,3 @@
 
 bdıhagcdahıbchıpşd
 jakıbchjbdchjal
-
-
-[lorem ipsum](http://google.com)
